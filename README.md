@@ -1,2 +1,0 @@
-# jaekwiin.github.io
-uwu
