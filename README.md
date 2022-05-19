@@ -1,2 +1,0 @@
-# jaekwin.github.io
-awa
